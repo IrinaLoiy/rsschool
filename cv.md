@@ -1,3 +1,4 @@
+![avatar] (./Images/irina.jpeg)
 Irina Loi
 tel. +375297654261, e-mail: iraloi96@icloud.com
 About me
