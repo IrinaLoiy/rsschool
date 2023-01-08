@@ -1,1 +1,1 @@
-https://IrinaLoiy.github.io/rsschool-cv
+https://IrinaLoiy.github.io/rsschool-cv/plants
